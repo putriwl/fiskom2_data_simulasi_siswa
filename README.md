@@ -1,1 +1,0 @@
-# fiskom2_data_simulasi_siswa
